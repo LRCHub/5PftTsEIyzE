@@ -1,0 +1,58 @@
+# eill – FAKE LOVE/
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hey ex-boyfriend
+甘い蜜と
+枯れた花を抜け出して
+美しく咲き誇って
+いるわ You know what?
+I never need your love
+貴方のために息をして
+待ち続けてた
+Yup, I was acting fool
+イカれた私はもういない
+今は You know what?
+I never wanted you
+曖昧で歪な愛情は
+全て捨てて進むだけ
+I don't want no fake love
+「愛してる」の言い訳
+どうぞ 今更ながら 語っておくれ
+心が貴方に振り向くはずがないけど
+Uh Uh Baby I don't need you boy
+Uh Uh It so fake, it was a fake love
+Now it's my turn
+甘い蜜に誘われて
+足を踏み入れれば
+Looks like a jaguar
+牙をむく
+お利口にしないと噛み下く
+曖昧で歪な愛情は
+全て捨てて進むだけ
+I don't want no fake love
+「愛してた」の言い訳
+どうぞ 今更ながら 語っておくれ
+心が貴方を許すはずがないけれど
+Uh Uh Baby I don't need you boy
+Uh Uh It so fake, it was a fake love
+Shake it off
+Shake it off
+Get off my way
+Shake it up
+Shake it up
+I got no time to kill
+Shake it off
+Shake it off
+All the girls! All we wanna do…
+Shining up Shining up
+All the girls! All we wanna do…
+Shake it up Shake it up
+貴方はきっと後悔する
+「愛してる」の言い訳
+どうぞ 今更ながら 語っておくれ
+心が貴方に振り向くはずがないけど
+Uh Uh Baby I don't need you boy
+Uh Uh It so fake, it was a fake love
+```
